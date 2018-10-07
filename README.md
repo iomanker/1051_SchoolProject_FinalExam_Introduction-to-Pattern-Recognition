@@ -1,0 +1,1 @@
+# 1051_SchoolProject_FinalExam_Introduction-to-Pattern-Recognition
